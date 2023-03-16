@@ -1,1 +1,0 @@
-s course is great
